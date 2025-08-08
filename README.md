@@ -1,2 +1,3 @@
 # sayuuz-o_o
-th3_re@per^_^
+dni: racists,homophobes,
+int: genshin fans,etm fans,hades fans
